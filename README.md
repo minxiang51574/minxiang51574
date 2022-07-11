@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+🔭 Hi，大家好，我是冥想
+🌱 我的学习积累博客 http://www.minxiang.site/mxBlog/
